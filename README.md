@@ -11,11 +11,11 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠛⠛⠋⠁⠀
 
 ⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚
-      /)    /)
-    (｡•ㅅ•｡)〝₎₎ Hi, My name is Anika! ✦₊ ˊ˗ 
+    /)   /)
+   (｡•ㅅ•｡)〝₎₎ Hi, My name is Anika! ✦₊ ˊ˗ 
 . .╭∪─∪────────────────────────────── ✦ ⁺.
-. .┊ Name : Anika                   ┊
-. .┊ Year : Junior                  ┊
 . .┊ School : Purdue University     ┊
+. .┊ Year : Junior                  ┊
+. .┊ Major : Computer Science       ┊
    ╰─────────────────────────────────  ✦ ⁺.
 ⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
