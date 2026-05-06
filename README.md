@@ -14,8 +14,8 @@
       /)    /)
     (｡•ㅅ•｡)〝₎₎ Hi, My name is Anika! ✦₊ ˊ˗ 
 . .╭∪─∪────────────────────────────── ✦ ⁺.
-. .┊ ◟﹫ Name : Anika
-. .┊﹒𐐪 Year : Junior
-. .┊ꜝꜝ﹒School : Purdue University
+. .┊ Name : Anika                   ┊
+. .┊ Year : Junior                  ┊
+. .┊ School : Purdue University     ┊
    ╰─────────────────────────────────  ✦ ⁺.
 ⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
