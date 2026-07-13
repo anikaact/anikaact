@@ -4,7 +4,6 @@
    (｡•ㅅ•｡)〝₎₎ Hi, My name is Anika! ✦₊ ˊ˗ 
 . .╭∪─∪────────────────────────────── ✦ ⁺.
 . .┊ School : Purdue University     ┊
-. .┊ Year : Junior                  ┊
 . .┊ Major : Computer Science       ┊
    ╰─────────────────────────────────  ✦ ⁺.
 ⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
